@@ -32,7 +32,9 @@ Feel free to reach out to me for collaborations or just a chat about technology 
 - 📘 [LinkedIn](https://www.linkedin.com/in/ryan-sargeson-aa667b150/)
 - 🌐 [Facebook Profile](https://www.facebook.com/profile.php?id=61552409201563)
 - 👥 [Facebook Group](https://www.facebook.com/groups/830798185411874)
+- 📄 [View My CV](https://app.enhancv.com/share/1b75f186/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
 
 ---
 
 Thank you for stopping by my profile! Let's make something awesome together.
+
